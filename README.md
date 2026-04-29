@@ -1,5 +1,5 @@
 - Hi! This is Ege Kingir!
-FOR INQUIRIES & QUESTIONS
+- FOR INQUIRIES & QUESTIONS:
 - Neuroscience and physiological signal processing: ege.kingir@med.uni-goettingen.de
 - Sports projects: egekingir@gmail.com
 <!---
